@@ -2,7 +2,7 @@
 
 
 
-<h1 align="center"> [ FUCK MR.AKING ]</h1>
+<h1 align="center"> [FUCK MR.AKING]</h1>
 
 <h2 align="center">  FB CLONING TOOL BYPASS </h2>
 
