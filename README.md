@@ -27,5 +27,5 @@
      
 
 
- ```Note : This Tools is Bypass Don't But it ```</br>
+ ```Note : This Tools is Bypass Don't Buy it ```</br>
  [![Whatsapp](https://img.shields.io/badge/Whatsapp-AKING-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+923237528063)
